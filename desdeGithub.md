@@ -1,1 +1,0 @@
-editado en github
